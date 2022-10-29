@@ -1,5 +1,5 @@
 - 👋 Hi! I’m Jayden / @owllegator
-- 🌱 I’m currently in school for a Game Art BFA
+- 🌱 I’m currently in school as a Game Arts major! (2025')
 - 📫 Contact me: jfosburg@pratt.edu
 
 <!---

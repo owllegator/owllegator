@@ -1,6 +1,6 @@
 - 👋 Hi! I’m Jayden / @owllegator
-- 🌱 I’m currently in school as a Game Arts major! (2025')
-- 📫 Contact me: jfosburg@pratt.edu
+- 🌱 i'm an artist and like to make things!
+- 📫 Contact me: owll3gator@gmail.com
 
 <!---
 owllegator/owllegator is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
